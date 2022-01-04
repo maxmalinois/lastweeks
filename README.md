@@ -4,6 +4,6 @@ Tis plots heel snel achteruit gegaan en we hebben dit nooit zien aankomen. De Ma
 Twas een prachtige tijd met hem. Een tijd dat we nooit gaan vergeten.
 
 
-%![alt text](2021-04-16 max in grasveld 1420060 KDM.jpg "18 april 2021")
-%![alt text](2021-04-08 wandeling max 1410979 KDM.jpg "4 augustus 2021")
-%![alt text](2021-09-09 max onderwater 1530708 KDM.jpg "9 september 2021")
+\\%![alt text](2021-04-16 max in grasveld 1420060 KDM.jpg "18 april 2021")
+\\%![alt text](2021-04-08 wandeling max 1410979 KDM.jpg "4 augustus 2021")
+\\%![alt text](2021-09-09 max onderwater 1530708 KDM.jpg "9 september 2021")
