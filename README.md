@@ -3,7 +3,3 @@ Maxje is een grote week geleden gediagnosticeerd met een autoimmuumziekte. Hij v
 Tis plots heel snel achteruit gegaan en we hebben dit nooit zien aankomen. De Max die we kenden is in 2 weken tijd volledig verdwenen. Alles wat hij graag deed had hij nu geen energie meer voor. Uiteindelijk hebben we vanochtend nog onze laatste korte wandeling met Maxje gedaan op zijn favoriete plaatsje. We hebben in vrede kunnen afscheid nemen en hij is vanmiddag (4 januari 2022) heengegaan. We zullen hem enorm missen, maar zijn blij zijn maatje te zijn geweest.
 Twas een prachtige tijd met hem. Een tijd dat we nooit gaan vergeten.
 
-
-\\%![alt text](2021-04-16 max in grasveld 1420060 KDM.jpg "18 april 2021")
-\\%![alt text](2021-04-08 wandeling max 1410979 KDM.jpg "4 augustus 2021")
-\\%![alt text](2021-09-09 max onderwater 1530708 KDM.jpg "9 september 2021")
